@@ -10,3 +10,7 @@
 * [Cathedral Rock Trail](https://www.alltrails.com/trail/us/arizona/cathedral-rock-trail)
 * [Seven Sacred Pools](https://www.alltrails.com/trail/us/arizona/seven-sacred-pools-trail)
 * [Soldier Pass Trail](https://www.alltrails.com/trail/us/arizona/soldier-pass-trail)
+
+### Retro
+* Forgot eating tools
+* Shouldnt have brought spray sunscreen. 
