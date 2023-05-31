@@ -13,4 +13,7 @@
 
 ### Retro
 * Forgot eating tools
-* Shouldnt have brought spray sunscreen. 
+* Shouldnt have brought spray sunscreen.
+* Forgot phone charging cord on Boyton Canyon Trail.
+* Get travel deoderant. Regular size is too big to pack.
+* 2L of water isnt enough for a 6-mile, 3-hour hike.
