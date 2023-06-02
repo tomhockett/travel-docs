@@ -19,3 +19,7 @@
 * Forgot phone charging cord on Boynton Canyon Trail.
 * Get travel deodorant. Regular size is too big to pack.
 * 2L of water isn't enough for a 6-mile, 3-hour hike.
+* bring bendy phone mount next time
+* packing and sundries were spot on - laundry was ezpz
+* sunshirt was too big - could have used a medium
+* could have used a warmer layer for Sedona or nicer events/restaurants
